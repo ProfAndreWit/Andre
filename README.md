@@ -7,3 +7,5 @@ Meu nome é André Witchemichen Ramos
 
 ###  Para entrar em contato comigo 📧
 andrewitchemichen1@gmail.com
+
+![](https://media.tenor.com/bJ1ixQTY7r8AAAAM/str-master-roshi-master-roshi.gif)
